@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @asifyasin
+- 👀 I’m interested in  trading
+- 🌱 I’m currently learning coding
+- 📫 How to reach me 9149483313..
